@@ -1,4 +1,4 @@
-[![MasterHead](https://i.redd.it/4qsi1p68tdub1.gif)]
+![MasterHead](https://i.redd.it/4qsi1p68tdub1.gif)
 
 
 <h1 align="center">Hi 👋, I'm Pavan Rasal</h1>
