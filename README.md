@@ -20,7 +20,7 @@
 
 -   📄 Know about my experiences [https://1drv.ms/b/c/f5a480dacaead9ce/EahfkyAvJ99Ml7cz4IiENrUBSbFC-lHWEBP26rzqE9JEZQ?e=gCww3z](https://1drv.ms/b/c/f5a480dacaead9ce/EahfkyAvJ99Ml7cz4IiENrUBSbFC-lHWEBP26rzqE9JEZQ?e=gCww3z)
 
--   ⚡ Fun fact **I tend to have full-on conversations with myself—great <br> way to brainstorm or just pass time! 😄**
+-   ⚡ Fun fact **I tend to have full-on conversations with <br> myself—great way to brainstorm or just pass time! 😄**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
